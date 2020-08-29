@@ -1,2 +1,2 @@
-���얢�m�F
+﻿動作未確認
 No support
